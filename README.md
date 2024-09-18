@@ -5,4 +5,4 @@ i like this emojis 🥶🥸🥺🥴
 
 🤸‍♀️
 
-![estrela do mario64](https://media.tenor.com/zFUVDcVwcqYAAAAi/star-cup-icon.gif)
+![estrela com laço rosa e livro](https://media.tenor.com/Grqw9edj1WAAAAAj/klevar-star-spirits.gif)

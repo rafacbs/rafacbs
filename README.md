@@ -1,7 +1,7 @@
 ## Oii
 mi nombre és rafaela 🤧
 
-i like this emojis 🥶🥸🥺🥴
+i like these emojis 🥶🥸🥺🥴
 
 🤸‍♀️
 
